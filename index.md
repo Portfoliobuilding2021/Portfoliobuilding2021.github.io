@@ -54,3 +54,7 @@
 - Exploring Japanese Culture and their world of Art.
 - Playing Rock Guitar
 - Investing in wide varieties of handheld video gaming systems.
+
+## Areas of Interest
+- Learning to program in Java and Python.
+- Robotics and a little bit of general electronics.
