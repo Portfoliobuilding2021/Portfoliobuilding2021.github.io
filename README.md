@@ -19,5 +19,5 @@ Here are some ideas to get you started:
 - No matter where we are, I will never ever stop loving you.
 - Lets hope we overcome this ordeal and finally take
 - the path that leads us back to each other.
-- We were together for seven years. 
+- We have been together for close to eight years now. 
 - Lets get married once we are reunited again.
