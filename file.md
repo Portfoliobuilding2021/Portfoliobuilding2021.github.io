@@ -22,18 +22,18 @@
 - Human Evolution, Anthropology and Evolution of Technology at Indian Institute of Engineering Science and Technology.
 
 ## 6. [Paid Internship: sg] (https:// www.sghosh@luxmigroup.in),(https:// www.goodricke@goodricke.com)
- - Worked as a paid Intern engaged in the on-the-job practical work of handling and managing software databases, keeping track of bulk orders and managing of online information systems, under Mr. Subhasis Ghosh at Goodricke Group Limited.
+ - Worked as a paid Intern engaged in the on-the-job practical work of handling and managing software databases, keeping track of bulk orders and managing of online information systems,U under Mr. Subhasis Ghosh at Goodricke Group Limited.
  
  ## 7. Project
  - Studying and researchng the image recognition software the "Viola Jones Image Recognition Software" and its practical implementation.
  -  Under Graduation Final year project work at the University.
 
 ## 8. [Practical Internship: bigus] (http://www.bigus.org.co.in)
--Community Service and Welfare work to promote skill development and food security among the impoverished and poverty-stricken rural population.
--Project on welfare work was conducted by Birbhumir Grameen Unnayan Samiti (Bigus) in the state of Birbhum West Bengal.
+- Community Service and Welfare work to promote skill development and food security among the impoverished and poverty-stricken rural population.
+- Project on welfare work was conducted by Birbhumir Grameen Unnayan Samiti (Bigus) in the state of Birbhum West Bengal.
 
 ## 9. [Research work: manasendu] (https:// www.manasendu@ucsb.edu)
--Undertaken, and authored a paper on Commercial Shrimp Farming and Destruction of Mangrove Vegetation in the Coastal Area of the Bay of Bengal.
--Under the tutelage of Dr. Manasendu Kundu, Professor of Environment and Anthropology (Summer Faculty at The University of California Santa Barbara).
+- Undertaken, and authored a paper on Commercial Shrimp Farming and Destruction of Mangrove Vegetation in the Coastal Area of the Bay of Bengal.
+- Under the tutelage of Dr. Manasendu Kundu, Professor of Environment and Anthropology (Summer Faculty at The University of California Santa Barbara).
 
 
