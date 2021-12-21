@@ -1,6 +1,6 @@
 # Srinjay Roop Sarbadhikary
 
-![] (https://www.smartserve.co/portfolio-building-how-many-stocks-should-one-have/)
+![](/images/image.png)
 
 ## Contact Details
  - Cell number: 9836724880
