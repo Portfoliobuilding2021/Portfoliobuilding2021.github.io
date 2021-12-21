@@ -1,10 +1,15 @@
 # Srinjay Roop Sarbadhikary
 
+## Contact Details
+ - Cell number: 9836724880
+ - E-mail: srinjaysarbadhikary008@gmail.com
+ - 
 ## Education
 - B.Tech in Information Technology from Regional Computer Center Institute of Information Technology (WBUT)
 - Currently pursuing Degree in Data Science from IIT Madras.
 
 ### Internships/ Projects
+
 ## 1. Project 
 - As a fine-print illustration of E-Commerce, have successfully completed a project on designing of the computerized Railway Reservation Systems.
  
