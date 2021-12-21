@@ -43,4 +43,14 @@
 - Undertaken, and authored a paper on Commercial Shrimp Farming and Destruction of Mangrove Vegetation in the Coastal Area of the Bay of Bengal.
 - Under the tutelage of Dr. Manasendu Kundu, Professor of Environment and Anthropology (Summer Faculty at The University of California Santa Barbara).
 
+## Achievments
+- Was part of the St. Xaviers school Cricket Team for the Kolkata inter-school cricket tournament (SLOBA)
+- Was the State Topper from West Bengal in Aligarh Muslim University All India Essay Competition.
+- Appeared for the Graduate Record Examination (GRE) and scored a 305/340.
+- Participated in the IIEST (Shibpur) Fest "INSTRUO" and won 2nd Prize in T-shirt Painting.
+- Received an an offer letter of employment for the position of Junior Associate by the State Bank of India.
 
+## Extra Curriculars
+- Exploring Japanese Culture and their world of Art.
+- Playing Rock Guitar
+- Investing in wide varieties of handheld video gaming systems.
