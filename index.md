@@ -24,7 +24,7 @@
 ## 6. [Paid Internship: sg] (https:// www.sghosh@luxmigroup.in),(https:// www.goodricke@goodricke.com)
  - Worked as a paid Intern engaged in the on-the-job practical work of handling and managing software databases, keeping track of bulk orders and managing of online information systems,U under Mr. Subhasis Ghosh at Goodricke Group Limited.
  
- ## 7. Project
+## 7. Project
  - Studying and researchng the image recognition software the "Viola Jones Image Recognition Software" and its practical implementation.
  -  Under Graduation Final year project work at the University.
 
